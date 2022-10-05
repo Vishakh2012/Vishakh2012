@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 ### Hello visitor, I am vishakh Prakash, nice to meet  you.
 - tech enthusiast, still searching for his tech kinks.
